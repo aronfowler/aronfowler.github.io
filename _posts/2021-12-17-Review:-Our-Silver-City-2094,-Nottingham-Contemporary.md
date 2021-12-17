@@ -8,7 +8,7 @@ author: "Lovely Man"
 
 “You’re spot on,” I agreed. “I’ll cut my teeth at Nottingham contemporary, and I’ll have a future in this business.
 
-![building](/assets/galleryoutside.jpg)
+![building](/assets/gallery outside.jpg)
 
 The edifice itself is a crinkle-cut, concrete crumple sunk into in sandstone cliffs. A green and gold squat in a giant’s footwell. The outside appears compressed, but visitors will be impressed as the building breathes inwards to become cavernous inside. Its windows are wide. They invite me to regret arriving by tram when I notice indoor parking space for super cargo planes.
 
