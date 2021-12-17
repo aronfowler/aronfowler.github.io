@@ -28,7 +28,7 @@ An imagined future wheels out artefacts and makes use of our now. It curates its
 
 I shoot through to Gallery Two. It’s a senseless multi-sensory experience employing textiles and defunct electronics. A floating rock is the only piece of interest to children, suspended at the eyeline of adults. A peeved fish swims for the exit. And a fast-flowing current of apathy carries me in the same direction. Those lifeguards you get in galleries decline to intervene.
 
-![gallery2](/assets/S1090057.jpg)
+![gallery2](/assets/S1090057.JPG)
 
 ![2pieces](/assets/Untitled(3).jpg)
 
@@ -40,7 +40,7 @@ Some reckon this fleece is a sheen with nothing solid or worthwhile underneath, 
 
 The next room is an encirclement of sideboards on a carpet floor. Future tramplers must choose to remove their shoes or supervise a swimming lesson with blue plastic slippers. If the exhibition promised that humankind will wobble but life will flourish once again, it now takes a dystopian turn. The carpet howls out for cushion and durability. There’s no underlay. A carpet without underlay is like a duvet of pathetic tog.
 
-![sideboards](/assets/S1090072.jpg)
+![sideboards](/assets/S1090072.JPG)
 ![2objects](/assets/owl and lady.jpg)
 
 An owl curls out a furry turd. A muddy stroke victim uses neither shampoo nor conditioner. She communicates that if you critique art, you are an art critic — but I’ve offered no criticism, no analysis, and nothing of substance. She says I’m a clown.
