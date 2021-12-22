@@ -38,18 +38,18 @@ Some reckon this fleece is a sheen with nothing solid or worthwhile underneath, 
 
 ![weather](/assets/beach.jpg)
 
-The next room is an encirclement of sideboards on a carpet floor. Future tramplers must choose to remove their shoes or supervise a swimming lesson with blue plastic slippers. If the exhibition promised that humankind will wobble but life will flourish once again, it now takes a dystopian turn. The carpet howls out for cushion and durability. There’s no underlay. A carpet without underlay is like a duvet of pathetic tog.
+The next room is an encirclement of sideboards on a carpet floor. Future tramplers must choose to remove their shoes or supervise a swimming lesson with blue plastic slippers. If the exhibition promised that humankind will wobble but life will flourish once again, it now takes a dystopian turn. The carpet howls out for cushion and durability. There’s no underlay. And a carpet without underlay is like a duvet of pathetic tog.
 
 ![sideboards](/assets/S1090072.JPG)
 ![2objects](/assets/owl and lady.jpg)
 
-An owl curls out a furry turd. A muddy stroke victim uses neither shampoo nor conditioner. She communicates that if you critique art, you are an art critic — but I’ve offered no criticism, no analysis, and nothing of substance. She says I’m a clown.
+An owl curls out a furry turd. A muddy stroke victim uses neither shampoo nor conditioner. She communicates that if you critique art, you are an art critic — but I’ve offered no criticism, no analysis, and nothing of substance. She reckons I’m a clown.
 
 But how am I supposed to exercise critical reason, how am I supposed to concentrate when this carpet’s career is condemned to be calamitous?
 
 A hairy pole occupies its own corner. It strikes a stern tone,
 
-“Listen, sunshine. Every detail is deliberate. As we age, time as we sense it accelerates. It seems to pass faster. In the year 2094, you will be ninety-nine years old. Carpet will flash through your experience from factory fresh to threadbare in 5 seconds flat.”
+“Listen, sunshine. Every detail is deliberate. As we age, time as we sense it accelerates. It seems to pass faster. In the year 2094, you will be ninety-nine years old. Carpet will flash through your experience from factory fresh to threadbare in five seconds flat.”
 
 If time is speeding up, it’s already time for me to leave — thank God.
 
