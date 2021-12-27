@@ -4,7 +4,7 @@ title: "Review: Our Silver City 2094, Nottingham Contemporary"
 author: "Lovely Man"
 ---
 
-“If you critique art, you are an art critic,” said the careers advisor to the gorgeous fleece. The warm philistine inside that fleece was me.
+“If you critique art, you are an art critic,” said the careers advisor to the gorgeous fleece. The warm bloke inside that fleece was me, Philistine of the Year 2021.
 
 “You’re spot on,” I agreed. “I’ll cut my teeth at Nottingham contemporary, and I’ll have a future in this business.
 
