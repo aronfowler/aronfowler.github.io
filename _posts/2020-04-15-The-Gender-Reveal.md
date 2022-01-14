@@ -29,7 +29,7 @@ A pin pierces the balloon. My underhand desire for genetic mutation is likewise 
 
 Just over the crest of the occasion, it seems a natural interval, and I move for the loo. I head directly to it, owing to my acute gift for locating toilets in unsignposted places. I don’t dwell an age in the solace of this small downstairs facility because it is unclear as to whether the door is locked or not. My short stop is, however, sufficient to contemplate that perhaps all this could not be otherwise, albeit we could have been spared the ritual:
 
-I mean to say that if there is no self, in the sense of a constituent subject, independent of discursive practice; and if the body is recognisable to itself as well as to others — it has an identity, in other words — only by occupying a position within more or less pre-established forms, categories and narratives, then it is simply not possible for this baby to be anything other than regulated by hegemonic knowledge and understood as per social codes.
+I mean to say that if there is no self, in the sense of a constituent subject, independent of discursive practice, and if the body is recognisable to itself as well as to others — it has an identity, in other words — only by occupying a position within more or less pre-established forms, categories and narratives, then it is simply not possible for this baby to be anything other than regulated by hegemonic knowledge and understood as per social codes.
 
 The deterministic implications of this idea trouble me, but I console myself knowing that this nephew of mine may deviate later in life — if only to a degree, and if he so wishes.
 
