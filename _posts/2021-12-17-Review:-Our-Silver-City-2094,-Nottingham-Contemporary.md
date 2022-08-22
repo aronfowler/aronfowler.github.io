@@ -22,11 +22,11 @@ It comes accompanied by a sci-fi novella — which is actually quite good, and t
 
 It’s conceptual art. Its value is not located in its beauty but in its meaning. Its meaning is hard to grasp, however, when further information explains nothing from beneath the title ‘Untitled’.
 
-It doesn’t frustrate me. I’m an art critic now. I know that stating meaning is the job of science; art expresses it — and meaning will come from the exhibition as a whole atmosphere, a whole concept:
+It doesn’t frustrate me. I’m an art critic now. I know that stating meaning is the job of science; art expresses it — and meaning will come from the exhibition as a whole atmosphere, a whole concept...
 
 An imagined future wheels out artefacts and makes use of our now. It curates its history selectively to construct how it sees itself. All societies do it. We do it presently. By setting it in the future, we might defamiliarise this familiar business and make it noticeable. It’s a good idea, executed in the most obscure fashion so that everyone except the public understands.
 
-I shoot through to Gallery Two. It’s a senseless multi-sensory experience employing textiles and defunct electronics. A floating rock is the only piece of interest to children, suspended at the eyeline of adults. A peeved fish swims for the exit. And a fast-flowing current of apathy carries me in the same direction. Those lifeguards you get in galleries decline to intervene.
+I shoot through to Gallery Two. It’s a senseless multi-sensory experience employing textiles and defunct electronics. A floating rock is the only piece of interest to children, suspended at the eyeline of adults. A peeved fish swims for the exit, and a fast-flowing current of apathy carries me in the same direction. Those lifeguards you get in galleries decline to intervene.
 
 ![gallery2](/assets/S1090057.JPG)
 
@@ -43,7 +43,7 @@ The next room is an encirclement of sideboards on a carpet floor. Future trample
 ![sideboards](/assets/S1090072.JPG)
 ![2objects](/assets/owl and lady.jpg)
 
-An owl curls out a furry turd. A muddy stroke victim uses neither shampoo nor conditioner. She communicates that if you critique art, you are an art critic — but I’ve offered no criticism, no analysis, and nothing of substance. She reckons I’m a clown.
+An owl curls out a furry turd. A muddy stroke victim uses neither shampoo nor conditioner. She communicates that if you critique art, you are an art critic. She says, however, that I’ve offered no criticism, no analysis, and nothing of substance. She reckons I’m a clown.
 
 But how am I supposed to exercise critical reason, how am I supposed to concentrate when this carpet’s career is condemned to be calamitous?
 
